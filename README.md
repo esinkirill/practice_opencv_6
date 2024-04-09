@@ -3,3 +3,7 @@
 
 ## Результат
 
+
+
+https://github.com/esinkirill/practice_opencv_6/assets/78916798/faeddf3b-588b-494c-898e-360576669401
+
